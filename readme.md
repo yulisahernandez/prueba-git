@@ -1,1 +1,1 @@
-Este es un texto de prueda
+Este es un texto de prued
